@@ -8,8 +8,3 @@ prasad bhai ki fhatey  hooo
 <br>kamar  riyaaaaaaaaaaaa aye hayeeeeeeeeee <br>
 tirupati balaji ki jaiii hooooo
 
-
-
-prajvl doglaaaaaaaaaaaaaaaaaaaaaaaaaaaa
- 
-ayush x prajwal dogleee
